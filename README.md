@@ -31,4 +31,7 @@
 <br>
 ご不明点やお問い合わせなどは、以下の専用メールアドレス宛へよろしくお願いします。
 <br>
-getinto99@gmail.com
+webody.xx@gmail.com
+
+twitter
+https://twitter.com/webody_fit
